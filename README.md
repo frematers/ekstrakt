@@ -16,3 +16,6 @@ Support :
 Scrape title to be used as longtail keyword without monthly fee 
 
 Get it now > https://shop.frematers.com/2021/09/extrait-scrape-title.html
+
+
+Other Digital Product > https://shop.frematers.com/
